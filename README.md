@@ -1,4 +1,4 @@
-﻿# AgentX - #1 100% Feee Offline LLM For Unlimited Use
+﻿# AgentX - #1 Feee Offline LLM For Unlimited Use
 
 **The Offline LLM + Creative Suite (100% Local, 100% Free)**
 
